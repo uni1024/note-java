@@ -2,7 +2,6 @@ Author：unirithe
 
 WeChat：unirithe
 
-QQ: uni1024
 
 Ctrl +F :
 
